@@ -50,7 +50,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 👑 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [MD REDOY DEOUN](https://www.facebook.com/CRIMINAL.SHADIN.1971)
+- 👑 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [Md Shadin Afridi](https://www.facebook.com/SHADIN.RUPA.143)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
